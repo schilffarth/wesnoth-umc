@@ -2,116 +2,122 @@
 
 ## Episode 1: Der Anfang
 
-Ich hole ein bisschen weiter aus, damit ihr auch versteht, wie die Tragödie ihren Anfang nahm. Es waren 3 Jahre, in welchen die Menschen unter ihrem Herrscher Disgustus dem Zweiten keine Probleme bereiteten. Doch es war nur eine Frage der Zeit, wann sich des Machthabers Arroganz und Ignoranz in Problemen widerspiegelten.
+Die Dunkelheit verschlingt mich.
 
-Mein Name ist Tedder. Es spielte sich in meinem friedlich ruhigen Dorf, gelegen im Süden der Tückischen Gipfel, nördlich der Menschenstadt Bostim, ab. Es gab sonnige Tage in diesen Zeiten und es gab schlechte Tage, mit Überschwemmungen der Flüsse und Berglawinen, bis hin zu Dürreperioden, deren Stürme den Sand der nordöstlich gelegenen Sandigen Einöde bis hinauf in unsere Bergstädte trugen.
+Wie eine Flut der tiefsten Finsternis überwältigt es meinen Geist und Körper.
 
-Du wirst nun eventuell eine Menge von Kriegen, Blutbädern, Verstümmelungen und Verschwörungen erwarten. Kriegslüsterne Trolle in den Bergen lebend, ohne in Streitigkeit mit den Menschen, Zwergen oder Elfen zu geraten? Aber rund um das Gebiet Bostims war es seit Jahrhunderten eine wundersam herrliche Zeit des Friedens.
+Gronk war einst ein mächtiger Krieger und Oberhaupt des Trollstammes der Tückischen Gipfel. Er fiel im Zweikampf gegen einen schrecklich mächtigen Zauberer, der die Dunkle Magie als Weg gewählt hatte. Noch einige Zeit terrorisierte der Totenbeschwörer mit einer nicht kleiner werdenden Armee von Untoten die Lande rund um die Menschenhauptstadt Bostim. Es wurde nie bekannt, wer jener Totenbeschwörer war oder woher er kam, doch nach zwei Jahren wurde er von Elfenkönig Vasolin persönlich besiegt und in ein Verlies für den Rest seiner Tage befördert.
 
-Alles und jeder wurde bei uns gut behandelt. Die einzigen Unruhen, von denen es weit und breit zu erzählen gab, waren Überfälle der Wilden in die zivilisierteren Gebiete der Menschen oder ein paar vereinzelte, aufmüpfige Orks, die hingerichtet werden mussten.
+Ich war noch jung, fast noch ein Welpe, voller Eifer und galt als einer der wenigen Trolle, die es je fertig gebracht hatten, Magie zu beherrschen. Es bedarf keines Kampfes um die Herrschaft als Nachfolger von Gronk. Der einzige Troll der an die Kraft von Gronk heran kam war Ugoki, ein gewaltiger Felsriese und mein Freund seit unserer Kindheit. Doch er verweigerte den Kampf gegen seine Brüder - Es waren bereits so viele von uns gestorben. Das erste mal in der Geschichte, seit den Gerüchten eines lebenden Trolles aus Stein, wurde der Stammesführer nicht durch einen Zweikampf bis zum Tode, sondern durch eine Wahl ernannt. So begann meine Herrschaft im Süden der Tückischen Gipfel.
 
-Zu jenen Tagen war es Heerführer und Gebieter Uruknorg, der dafür zuständig war, die Kriegsfehden zwischen den Orkstämmen im Zaum zu halten und die meisten Stammeshäuptlinge unter Kontrolle zu halten.
+Mein Name ist Tedder. Es spielte sich in meinem friedlich ruhigen Dorf, gelegen im Süden der Tückischen Gipfel, nördlich der Menschenstadt Bostim, ab. Es gab sonnige Tage in diesen Zeiten und es gab schlechte Tage, mit Überschwemmungen der Flüsse und Berglawinen, bis hin zu Dürreperioden, deren Stürme den Sand der nordöstlich gelegenen Sandigen Einöde bis hinauf in unser Bergdorf trugen.
 
-Von den im Wachsamen Wald lebenden Wesen, seien es die alten Waldschrate oder die dem Elfenkönig Vasolin unterliegenden Elfen, wurde seit Ewigkeiten nichts mehr gehört. Das Einzige, das man von dort mitbekam, waren hin und wieder wenige abtrünnige Elfenfürsten, die jedoch keine weiteren Probleme bereiteten.
+Seit einigen Jahren war es in unserem Land eine wundersam herrliche Zeit des Friedens. Zwerge, Elfen, Menschen, Orks und Trolle hatten sich dazu entschlossen, das Land in Gebiete für jede Rasse einzuteilen und Frieden zu wahren. Es sollte kein weiteres Blut vergossen werden.
 
-Die Hauptrolle der Menschen spielte sich damals in Bostim ab. Es war eine Hauptstadt, ein Mittelpunkt allen Handels und, darüber hinaus, Sitz eines jeden Königs der Menschen, momentan Disgustus IV.
+Es verstrichen wenige Jahre des Friedens. Die Stämme und Städte erholten sich, technischer Fortschritt gelang. Was mich betrifft - Mein Trollstamm erlebte eine Blütezeit. Wir bauten unser Dorf aus, dominierten die südlichen Bergregionen und schafften es größtenteils, Wilde von unseren Höhlen fernzuhalten. Doch es war nur eine Frage der Zeit, wann sich Bostims König Disgustus des Zweiten Arroganz und Vorliebe des mörderischen Beseitigens seiner Probleme zu den meinen wurden.
 
-Ein paar Tage bevor meine Geschichte ihren Lauf nahm wurden wir von Wilden aus den nördlicheren Gebieten des Gebirges überfallen – Sie stahlen all unser Gold, während sich die meisten unserer Krieger auf der Jagd befanden. Wäre dieser Teil anders verlaufen, wer weiß, vielleicht hätte ich mich nie in dieser Lage befunden.
+Ein paar Tage bevor die Tragödie ihren Lauf nahm wurden wir von Wilden aus den nördlicheren Gebieten des Gebirges überfallen. Sie stahlen all unser Gold, während sich die meisten unserer Krieger auf der Jagd befanden. Es regte sich etwas in Bostim. Raben flogen von der Menschenstadt nach Südwesten, in Richtung des Wachsamen Waldes. Glocken läuteten an jenem Morgen.
 
-Ein paar wenige Tage nach dem Überfall der Wilden war es soweit. Es regte sich etwas in Bostim. Raben flogen von der Menschenstadt nach Südwesten, in Richtung des Wachsamen Waldes. Glocken läuteten an jenem Morgen.
+Wir bekamen in unserem von Bergen geschützten Dorf den Lärm aus der Ferne schon seit dem Morgengrauen mit. Ich schickte zwei meiner Trollkrieger zur südlichen Grenze der Berge, um herauszufinden, was in der Stadt vor sich ging.
 
-Wir bekamen in unserem von Bergen geschützten Dorf den Lärm aus der Ferne schon seit dem Morgengrauen mit. Ich schickte zwei meiner Krieger zur südlichen Grenze der Berge, um herauszufinden, was in der Stadt vor sich ging.
+> Südlich der Berge / des Dorfes von Tedder befinden sich die 2 Trolle (Namen: Brunt und Golg)
 
---- Südlich der Berge die 2 Trolle (Namen: Brunt und Golg) -  Sie sichten Reiter südlich von Bostim kommend
+> Sie sichten Reiter südlich von der Menschenhauptstadt Bostim kommend
 
-Brunt: „Schau, dort im Süden. Ritter mit dem Wappen Bostims! Ob sie eine Nachricht für uns überbringen?“
+Brunt: "Schau, dort im Süden. Ritter mit dem Wappen Bostims!“
 
---- Die Reiter nähern sich dem Troll Golg
+> Die Reiter nähern sich dem Troll Golg
 
-Golg: „Seid gegrüßt, Ritter! Was geschieht im Süden hinter verschlossenen Toren? Glocken wurden geläutet und...“
+Golg: "Seid gegrüßt, Ritter! Was geschieht im Süden hinter verschlossenen Toren? Glocken wurden geläutet und...“
 
---- Die Reiter ermorden den Troll Golg
+> Die Reiter ermorden den Troll Golg
 
---- Troll Brunt flieht nach Norden, zu Tedder in die Festung
+> Troll Brunt flieht nach Norden, zu Tedder in das Dorf
 
---- Die Ritter (Namen: Sir Richard und Ritter Gerhard) reiten zurück nach Bostim, zu Disgustus IV.
+> Die Ritter (Namen: Sir Richard und Ritter Gerhard) reiten zurück nach Bostim, zu Disgustus II
 
-Sir Richard: „Herr, wir haben ein paar Trolle nah zum Flachland getroffen.“
+> In Bostim, im Süden
 
-Ritter Gerhard: „Wir haben nicht lange gezögert – Des ersten Trolles Kopf rollte dahin, doch ein weiterer floh.“
+Sir Richard: "Herr, wir trafen auf ein paar Trolle nahe zum Flachland.“
 
-General Disgustus: „Dann ist es wohl soweit. Lasst Botschaft an die Elfen überbringen, sie sollen sich bereit halten. Beenden wir Tedders Herrschaft noch heute!“
+Ritter Gerhard: "Des ersten Trolles Kopf rollte dahin, doch ein weiterer floh. Tedder wird gewarnt sein!“
 
---- Bei Tedder, im Norden
+König Disgustus II: "Dank der mir auferlegten Pflichten und zugeteilten Rechte möge sich dieses Blutbad im Namen von Bostim verrichten."
 
-Brunt: „Wir werden angegriffen! ALARM! Ritter aus Bostim haben Golg ermordet! König Disgustus muss etwas Schlimmes im Schilde führen!“
+Sir Richard: "Herr... Wir dürfen nichts riskieren!"
 
-Tedder: „Was sagst du? Die Menschen brechen den Frieden, jenen, in dessen Ruhe ein jeder Elf, Zwerg und Ork sich labte?“
+König Disgustus II: "Meine Attentäter sollten in wenigen Stunden eintreffen. Wir dürfen Tedder keinen Kontakt nach Süden ermöglichen."
 
-Brunt: „Ich befürchte, das Schlimmste wird geschehen! Tedder, unsere Vorräte in den Höhlen sind ausgeraubt – Wir haben weder genügend Gold in Besitz, noch bewaffnete Kämpfer, um uns zu verteidigen.“
+Ritter Gerhard: "Lasst uns gen Norden reiten und dies sicherstellen. Wir sind zahlenmäßig so oder so überlegen."
 
-Tedder: „Ganz egal, was passieren mag. Dieser Menschenkönig wird sein Leben lassen! Lasst uns diesen Zweibeinern zeigen, was passiert, wenn man sich mit uns anlegt! Wo ist Ugoki? Ich brauche unsere besten Männer an meiner Seite!!!“
+König Disgustus II: "Möge Tedders Herrschaft am heutigen Tage beendet werden!"
 
---- Troll Ugoki kommt von Nordosten zu Tedder und Brunt
+> Bei Tedder, im Norden
 
-Ugoki: „Was ist los, Tedder? Ich musste meine Nachspeise aus Stinktieranus und Pferdefußsoße unterbrechen.“
+Brunt: "Wir werden angegriffen! ALARM! Ritter aus Bostim haben Golg ermordet!“
 
---- Zwei Trolle (Namen: Pelter und Goltar) kommen von Nordosten zu Tedder, Ugoki und Brunt
+Tedder: "König Disgustus Arroganz muss ihm zum Kopf gestiegen sein. Er bricht den Frieden, in dessen Ruhe ein jeder Elf, Zwerg und Ork sich sonn."
 
---- Ziel: Überlebe x Runden gegen die Invasion von General Disgustus
+Tedder: "Ich habe dies kommen sehen... Doch unsere Höhlen sind ausgeraubt und an Kriegern mangelt es uns auch. Wo ist Ugoki? Wir brauchen alle Kämpfer die wir kriegen können!"
 
---- Nach y Runden (y < x) kommen Attentäter im Westen der Karte
+> Ugoki kommt von Nordosten zu Tedder und Brunt
 
-Attentäter 1: „Wer trampelt und strampelt, im gar letzten Atemzug des Lebens? Die Berge herab, so unschuldig, als sei es das Normalste der Welt...“
+Ugoki: "Was ist los, Tedder? Ich musste meine Nachspeise aus Eichhörnchenschwanz und Pferdefußsoße unterbrechen.“
 
-Disgustus: „Stecht sie ab, meine Untertanen!“
+Brunt: "Disgustus muss sich durch die Herrschaft eines intelligenten Trolles wie Tedder zu sehr bedroht gefühlt haben. Wir werden von Bostim angegriffen!"
 
---- Tod von Tedder
+Tedder: "Bostim wird nicht ungeschoren davon kommen. Verteidigt unsere Heimat und unser Volk, Männer!!"
 
-Tedder: „Ich habe versagt... Doch das Ableben dieses Disgustus sei ihm sicher! Bostim in Schutt und Asche gelegt, sowie ihre Seelen auf Ewig gequält, so soll es sein. Aus und vorbei!“
+> Ziel: Überlebe x Runden gegen die Invasion von General Disgustus
 
---- Tod von Ugoki
+> Nach y Runden (y < x) kommen Attentäter im Westen der Karte
 
-Ugoki: „Das geschieht zu früh… Die Rache eines jeden Trolles soll dies Menschen Tyrannei ein quälendes Ende bereiten!“
+Attentäter: "Wer trampelt und strampelt, im gar letzten Atemzug des Lebens, die Berge herab, so unschuldig, als sei es das Normalste der Welt?“
 
---- Sollte einer der gegnerischen Anführer besiegt werden (was eigentlich nicht möglich ist, nur mit Cheats)
+König Disgustus II: "Erledigt euren Auftrag, meine Untertanen! Lasst die Welpen am Leben, sie könnten uns noch von Nutzen sein.“
 
-General Disgustus: „Wer wie was? Wie kann das sein? Krepiert doch endlich!“
+> Tod von Tedder
 
-Dialog: „Tedders Armee war der Sieg gewiss - Doch letztendlich war es vorüber. Die Soldaten aus Bostim vernichteten jeden sich wehrenden Troll.“
+Tedder: "Ich habe versagt... Bostim in Schutt und Asche gelegt, sowie ihre Seelen auf Ewig gequält, so soll es sein. Aus und vorbei!“
 
---- In allen obigen Todesfällen, sei es Tedder, Ugoki oder ein Gegner….
+> Tod von Ugoki
 
-Dialog: „Die Trolle kämpften lang und furchtlos. Doch am Ende wurden jene, die immer noch am Leben waren, überwältigt. An diesem Tage tränkte Troll- und Menschenblut den Boden auf den Straßen von Bostim nach Norden.“
+Ugoki: "Das geschieht zu früh... Wie soll ich nur ohne dem Klang der Natur in Ruhe weilen?“
 
----  Ein weiterer Attentäter der Menschen erscheint und tötet alle noch lebenden Trolle. Jüngere Trollwelpen werden von Soldaten gefangen genommen, nicht getötet.
+> Sollte einer der gegnerischen Anführer besiegt werden (was eigentlich nicht möglich sein sollte)
 
-Dialog: „Tedder wurde Eins mit dem Reich der Toten…..“
+Dialog: "Tedders Armee war der Sieg gewiss - Doch letztendlich war es vorüber. Die Soldaten aus Bostim vernichteten jeden sich wehrenden Troll. An diesem Tage tränkte Troll- und Menschenblut den Boden auf den Straßen von Bostim nach Norden.“
+
+> In allen obigen Todesfällen, sei es Tedder, Ugoki oder ein Gegner
+
+Dialog: "Die Trolle kämpften lange und furchtlos. Doch am Ende wurden jene, die immer noch am Leben waren, überwältigt. An diesem Tage tränkte Troll- und Menschenblut den Boden auf den Straßen von Bostim nach Norden.“
+
+> Ein weiterer Attentäter der Menschen erscheint und tötet alle noch lebenden Trolle (jüngere Trollwelpen werden von Soldaten gefangen genommen, nicht getötet)
+
+Dialog: „Tedder wurde Eins mit dem Reich der Toten.....“
 
 
 
 
-Episode 2: Auferstehung
+## Episode 2: Auferstehung
 
-…..oder doch nicht?
+.....oder doch nicht?
 
 Schwärze umgibt mich.
 
 Fühlt sich der Tod so an?
 
---- Hinweis: Aus vorangegangener Story entfernt, dass Tedder und Ugoki zuerst als Geister auferstehen und sich erst später im Sonnenlicht in Untote Trolle verwandeln. Da dies aber sonst auch nicht so ist, habe ich es wieder herausgenommen. Meinungen? Wäre nur zusätzlicher Erklärungs- und Malaufwand
+> Tedder und Ugoki befinden sich in einer Höhle, als Untote / Auferstandene Trolle
 
---- Tedder und Ugoki befinden sich in einer Höhle, als Untote Trolle
+Tedder: "...“
 
-Tedder: „...“
+Tedder: "...hallo?“
 
-Tedder: „… Hallo?“
+Tedder: "Ist da jemand?“
 
-Tedder: „Ist da jemand?“
+Ugoki: "Scheiße, der letzte Schnaps muss schlecht gewesen sein.“
 
-Ugoki: „Scheiße, der letzte Schnaps muss schlecht gewesen sein.“
-
-Tedder: „Wer bist du? WAS bist du??“
+Tedder: "Wer bist du? WAS bist du??“
 
 Ugoki: „Und du bist… halb verfault? Hast du... Bist du ansteckend? Deine Knochen kann ich sehen! Ist ja widerlich.“
 
