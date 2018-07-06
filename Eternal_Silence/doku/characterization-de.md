@@ -14,7 +14,7 @@ Tedder behauptet sich weniger mit seiner reinen Muskelkraft, als mit seiner Inte
 
 ###### Auferstehung
 
-Nachdem König Disgustus IV. von Bostim Tedders Herrschaft, sowie seines gesamten Stammes Leben, beendete, ist es ihm, dank seiner Intelligenz und früheren Gabe mit der Magie, möglich, die Totenbeschwörung zu erlernen.
+Nachdem König Disgustus II. von Bostim Tedders Herrschaft, sowie seines gesamten Stammes Leben, beendete, ist es ihm, dank seiner Intelligenz und früheren Gabe mit der Magie, möglich, die Totenbeschwörung zu erlernen.
 
 ## Ugoki - Troll
 

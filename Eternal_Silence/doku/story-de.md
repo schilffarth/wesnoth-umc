@@ -4,19 +4,19 @@
 
 Die Dunkelheit verschlingt mich.
 
-Wie eine Flut der tiefsten Finsternis überwältigt es meinen Geist und Körper.
+Wie eine Flut der tiefsten Finsternis überwältigt der Tod meinen Geist und Körper.
 
-Gronk war einst ein mächtiger Krieger und Oberhaupt des Trollstammes der Tückischen Gipfel. Er fiel im Zweikampf gegen einen schrecklich mächtigen Zauberer, der die Dunkle Magie als Weg gewählt hatte. Noch einige Zeit terrorisierte der Totenbeschwörer mit einer nicht kleiner werdenden Armee von Untoten die Lande rund um die Menschenhauptstadt Bostim. Es wurde nie bekannt, wer jener Totenbeschwörer war oder woher er kam, doch nach zwei Jahren wurde er von Elfenkönig Vasolin persönlich besiegt und in ein Verlies für den Rest seiner Tage befördert.
+Gronk war einst ein mächtiger Krieger und Oberhaupt des Trollstammes der Tückischen Gipfel. In 712 YW fiel er im Zweikampf gegen einen schrecklich mächtigen Zauberer, der die dunkle Magie als Weg gewählt hatte. Noch ein weiteres Jahr terrorisierte der Totenbeschwörer, mit einer nicht kleiner werdenden Armee von Untoten, die Länder rund um die Menschenhauptstadt Bostim. Nach diesem Krieg wurde jener Todesverehrer von einem Bündnis der Menschen, Orks und Elfen besiegt und für den Rest seiner Tage in ein Verlies befördert.
 
-Ich war noch jung, fast noch ein Welpe, voller Eifer und galt als einer der wenigen Trolle, die es je fertig gebracht hatten, Magie zu beherrschen. Es bedarf keines Kampfes um die Herrschaft als Nachfolger von Gronk. Der einzige Troll der an die Kraft von Gronk heran kam war Ugoki, ein gewaltiger Felsriese und mein Freund seit unserer Kindheit. Doch er verweigerte den Kampf gegen seine Brüder - Es waren bereits so viele von uns gestorben. Das erste mal in der Geschichte, seit den Gerüchten eines lebenden Trolles aus Stein, wurde der Stammesführer nicht durch einen Zweikampf bis zum Tode, sondern durch eine Wahl ernannt. So begann meine Herrschaft im Süden der Tückischen Gipfel.
+Ich war noch jung, fast noch ein Welpe, voller Eifer und galt als einer der wenigen Trolle, die es je fertig gebracht hatten, Magie zu beherrschen. Der einzige Troll der an die Kraft von ihm heran kam war Ugoki, ein gewaltiger Felsriese und mein Freund seit unserer Kindheit. Doch er verweigerte den Kampf gegen seine Brüder - Es waren bereits so viele von uns gestorben. Das erste mal in der Geschichte, seit den ersten Gerüchten eines lebenden Trolles aus Stein, wurde der Stammesführer nicht durch einen Zweikampf bis zum Tode, sondern durch eine Wahl ernannt. So begann meine Herrschaft im Süden der Tückischen Gipfel.
 
-Mein Name ist Tedder. Es spielte sich in meinem friedlich ruhigen Dorf, gelegen im Süden der Tückischen Gipfel, nördlich der Menschenstadt Bostim, ab. Es gab sonnige Tage in diesen Zeiten und es gab schlechte Tage, mit Überschwemmungen der Flüsse und Berglawinen, bis hin zu Dürreperioden, deren Stürme den Sand der nordöstlich gelegenen Sandigen Einöde bis hinauf in unser Bergdorf trugen.
+Mein Name ist Tedder. Es spielte sich in meinem friedlich ruhigen Dorf ab, nördlich der Menschenstadt Bostim. Es gab sonnige Tage in diesen Zeiten und es gab schlechte Tage, mit Überschwemmungen der Flüsse und Berglawinen, bis hin zu Dürreperioden, deren Stürme den Sand der nordöstlich gelegenen Sandigen Einöde bis hinauf in unser Bergdorf trugen.
 
-Seit einigen Jahren war es in unserem Land eine wundersam herrliche Zeit des Friedens. Zwerge, Elfen, Menschen, Orks und Trolle hatten sich dazu entschlossen, das Land in Gebiete für jede Rasse einzuteilen und Frieden zu wahren. Es sollte kein weiteres Blut vergossen werden.
+Es war in unserem Land eine wundersam herrliche Zeit des Friedens. Zwerge, Elfen, Menschen, Orks und Trolle hatten sich dazu entschlossen, das Land in Gebiete für jede Rasse einzuteilen und Frieden zu wahren. Es sollte kein weiteres Blut vergossen werden.
 
-Es verstrichen wenige Jahre des Friedens. Die Stämme und Städte erholten sich, technischer Fortschritt gelang. Was mich betrifft - Mein Trollstamm erlebte eine Blütezeit. Wir bauten unser Dorf aus, dominierten die südlichen Bergregionen und schafften es größtenteils, Wilde von unseren Höhlen fernzuhalten. Doch es war nur eine Frage der Zeit, wann sich Bostims König Disgustus des Zweiten Arroganz und Vorliebe des mörderischen Beseitigens seiner Probleme zu den meinen wurden.
+Es verstrich Jahr für Jahr. Die Stämme und Städte erholten sich, technischer Fortschritt gelang. Was mich betrifft - Mein Trollstamm erlebte eine Blütezeit. Wir bauten unser Dorf aus, dominierten die südlichen Bergregionen und schafften es größtenteils, Wilde von unseren Höhlen fernzuhalten. Doch es war nur eine Frage der Zeit, wann sich Bostims König Disgustus des Zweiten Arroganz und Vorliebe des mörderischen Beseitigens seiner Probleme zu den meinen wurden.
 
-Ein paar Tage bevor die Tragödie ihren Lauf nahm wurden wir von Wilden aus den nördlicheren Gebieten des Gebirges überfallen. Sie stahlen all unser Gold, während sich die meisten unserer Krieger auf der Jagd befanden. Es regte sich etwas in Bostim. Raben flogen von der Menschenstadt nach Südwesten, in Richtung des Wachsamen Waldes. Glocken läuteten an jenem Morgen.
+Wir schrieben das Jahr 723 von Wesnoth. Ein paar Tage bevor die Tragödie ihren Lauf nahm wurden wir von Wilden aus den nördlicheren Gebieten des Gebirges überfallen. Sie stahlen all unser Gold, während sich die meisten unserer Krieger auf der Jagd befanden. Es regte sich etwas in Bostim. Raben flogen von der Menschenstadt nach Südwesten, in Richtung des Wachsamen Waldes. Glocken läuteten an jenem Morgen.
 
 Wir bekamen in unserem von Bergen geschützten Dorf den Lärm aus der Ferne schon seit dem Morgengrauen mit. Ich schickte zwei meiner Trollkrieger zur südlichen Grenze der Berge, um herauszufinden, was in der Stadt vor sich ging.
 
@@ -42,7 +42,7 @@ Sir Richard: "Herr, wir trafen auf ein paar Trolle nahe zum Flachland.“
 
 Ritter Gerhard: "Des ersten Trolles Kopf rollte dahin, doch ein weiterer floh. Tedder wird gewarnt sein!“
 
-König Disgustus II: "Dank der mir auferlegten Pflichten und zugeteilten Rechte möge sich dieses Blutbad im Namen von Bostim verrichten."
+König Disgustus II: "Dank der mir auferlegten Pflichten und erteilten Rechte möge sich das kommende Blutbad im Namen von Bostim verrichten."
 
 Sir Richard: "Herr... Wir dürfen nichts riskieren!"
 
@@ -58,15 +58,15 @@ Brunt: "Wir werden angegriffen! ALARM! Ritter aus Bostim haben Golg ermordet!“
 
 Tedder: "König Disgustus Arroganz muss ihm zum Kopf gestiegen sein. Er bricht den Frieden, in dessen Ruhe ein jeder Elf, Zwerg und Ork sich sonn."
 
-Tedder: "Ich habe dies kommen sehen... Doch unsere Höhlen sind ausgeraubt und an Kriegern mangelt es uns auch. Wo ist Ugoki? Wir brauchen alle Kämpfer die wir kriegen können!"
+Tedder: "Ich habe es kommen sehen... Doch unsere Höhlen sind ausgeraubt und an Kriegern mangelt es uns auch. Wo ist Ugoki? Wir brauchen alle Kämpfer die wir kriegen können!"
 
 > Ugoki kommt von Nordosten zu Tedder und Brunt
 
 Ugoki: "Was ist los, Tedder? Ich musste meine Nachspeise aus Eichhörnchenschwanz und Pferdefußsoße unterbrechen.“
 
-Brunt: "Disgustus muss sich durch die Herrschaft eines intelligenten Trolles wie Tedder zu sehr bedroht gefühlt haben. Wir werden von Bostim angegriffen!"
+Brunt: "Disgustus muss die Herrschaft eines intelligenten Trolles wie Tedder wohl weit aus weniger geduldet haben als wir vermuteten. Wir werden von Bostim angegriffen!"
 
-Tedder: "Bostim wird nicht ungeschoren davon kommen. Verteidigt unsere Heimat und unser Volk, Männer!!"
+Tedder: "Disgustus wird nicht ungeschoren davon kommen. Verteidigt unsere Heimat und unser Volk, Männer!"
 
 > Ziel: Überlebe x Runden gegen die Invasion von General Disgustus
 
@@ -82,13 +82,13 @@ Tedder: "Ich habe versagt... Bostim in Schutt und Asche gelegt, sowie ihre Seele
 
 > Tod von Ugoki
 
-Ugoki: "Das geschieht zu früh... Wie soll ich nur ohne dem Klang der Natur in Ruhe weilen?“
+Ugoki: "Das geschieht zu früh! Wie soll ich nur ohne dem Klang der Natur in Ruhe weilen?“
 
 > Sollte einer der gegnerischen Anführer besiegt werden (was eigentlich nicht möglich sein sollte)
 
 Dialog: "Tedders Armee war der Sieg gewiss - Doch letztendlich war es vorüber. Die Soldaten aus Bostim vernichteten jeden sich wehrenden Troll. An diesem Tage tränkte Troll- und Menschenblut den Boden auf den Straßen von Bostim nach Norden.“
 
-> In allen obigen Todesfällen, sei es Tedder, Ugoki oder ein Gegner
+> Tod von Tedder oder Ugoki
 
 Dialog: "Die Trolle kämpften lange und furchtlos. Doch am Ende wurden jene, die immer noch am Leben waren, überwältigt. An diesem Tage tränkte Troll- und Menschenblut den Boden auf den Straßen von Bostim nach Norden.“
 
@@ -107,7 +107,7 @@ Schwärze umgibt mich.
 
 Fühlt sich der Tod so an?
 
-> Tedder und Ugoki befinden sich in einer Höhle, als Untote / Auferstandene Trolle
+> Tedder und Ugoki befinden sich in einer Höhle, als untote bzw. auferstandene Trolle
 
 Tedder: "...“
 
@@ -119,170 +119,162 @@ Ugoki: "Scheiße, der letzte Schnaps muss schlecht gewesen sein.“
 
 Tedder: "Wer bist du? WAS bist du??“
 
-Ugoki: „Und du bist… halb verfault? Hast du... Bist du ansteckend? Deine Knochen kann ich sehen! Ist ja widerlich.“
+Ugoki: "Und du bist... halb verfault. Hast du... Bist du ansteckend? Deine Knochen kann ich sehen! Ist ja widerlich.“
 
-Tedder: „Deine eigenen Augen, schwarz wie die Nacht! Ich bin, oder war vor Kurzem oder Längerem, Tedder. Ich weiß um ehrlich zu sein nicht, wann genau. Ein paar Minuten kommt es mir vor seit... Ich wurde getötet! Dieser mickrige Wurm Disgustus überrannte mein Volk und Heimat!“
+Tedder: "Das selbe kann ich von dir behaupten! Ich bin, oder war vor Kurzem oder Längerem, Tedder. Ich weiß um ehrlich zu sein nicht, wann genau. Ein paar Minuten kommt es mir vor seit... Ich wurde getötet! Dieser mickrige Wurm Disgustus überrannte mein Volk und Heimat!“
 
-Ugoki: „Na, so trifft man sich wieder. Auch wenn wir wirklich nicht gesund aussehen und du mich ohne Zweifel nicht wieder erkennst - Ich bin, oder war, Ugoki. Ich kann mich auch an etwas erinnern. Da war... Friede. Aber dann... Ich musste mein Frühstück unterbrechen.“
+Ugoki: "Na, so trifft man sich wieder. Auch wenn wir wirklich nicht gesund aussehen und du mich ohne Zweifel nicht wieder erkennst - Mein Name ist Ugoki. Ich kann mich auch an etwas erinnern. Da war... Friede. Aber dann... Ich musste mein Frühstück unterbrechen.“
 
-Tedder: „Das erleichtert mich zumindest ein bisschen. Auch wenn ich verstört bin was unser Dasein betrifft. Was sind wir? Was ist mit uns passiert?“
+Tedder: "Das erleichtert mich zumindest ein bisschen. Auch wenn ich verstört bin was unser Dasein betrifft. Was sind wir? Was ist mit uns passiert?“
 
-Ugoki: „Wir sehen aus wie… Unecht. Tot.“
+Ugoki: "Wir sehen aus wie... Unecht. Tot.“
 
-Tedder: „Darum werden wir uns kümmern. Lass uns aber zuerst aus dieser dreckigen, engen Höhle entkommen.“
+Tedder: "Die Magie in diesen Höhlen ist unglaublich schwach. Als ob jemand versucht, sie abzuschirmen..."
 
---- Ziel: Erforsche die Höhle
+Tedder: "Nun, darum werden wir uns kümmern. Lass uns aber zuerst aus dieser dreckigen, engen Höhle entkommen.“
 
---- Wenn man Dörfer einnimmt, kommen zu einer zweidrittel Chance riesige Ratten neben dem Dorf, ein „Rattennest“ darstellend
+> Ziel: Erforsche die Höhle
 
---- Wenn die erste Ratte erscheint
+> Wenn man Dörfer einnimmt, kommen zu einer zweidrittel Chance riesige Ratten neben dem Dorf, ein Rattennest darstellend
 
-Einheit, die das Dorf eingenommen hat: „Ha, ein Rattennest! Lecker...“
+> Wenn die erste Ratte erscheint
 
---- Wenn man die erste Ratte tötet
+Einheit, die das Dorf eingenommen hat: "Ha, ein Rattennest! Lecker...“
 
-Die Einheit, die die Ratte getötet hat: „Irgendwie schmecken diese Riesenratten anders als bei uns zuhause, nach nichts.“
+> Wenn man die erste Ratte tötet
 
---- Ein bisschen weiter die Höhle stößt man auf einen eingekerkerten Zauberer. Wenn man auf den Zauberer stößt…
+Die Einheit, die die Ratte getötet hat: "Irgendwie schmecken diese Riesenratten anders als bei uns zuhause, nach nichts.“
 
-Zauberer: „Aaah, entfernt euch, Grässlichkeiten! Ist die ewige Einsamkeit nicht genug des Bösen an mir getan?“
+> Ein bisschen weiter die Höhle stößt man auf einen eingekerkerten Zauberer
 
-Tedder: „Wieso sollten wir dir etwas tun? Wir sind auf der Suche nach einem Weg aus diesen Tunneln!“
+Zauberer: "Aaah, entfernt euch, Grässlichkeiten! Ist die ewige Einsamkeit nicht genug des Bösen an mir getan?“
 
-Zauberer: „Wenn ihr keine Wesen dieser Höhle seid, wer seid ihr dann, Fremde?“
+Tedder: "Wieso sollten wir dir etwas tun? Wir sind auf der Suche nach einem Weg aus diesen Tunneln!“
 
-Tedder: „Die Frage ist nicht wer, sondern was wir sind...“
+Zauberer: "Wenn ihr keine Wesen dieser Höhle seid, wer seid ihr dann, Fremde?“
 
-Zauberer: „Wie kommt ihr hier her? Wenn ihr aus dieser Unterwelt fliehen wollt, habt ihr euch die falsche Seite ausgesucht.“
+Tedder: "Die Frage ist nicht wer, sondern was wir sind...“
 
-Ugoki: „Die falsche Seite?“
+Zauberer: "Wie kommt ihr hier her? Wenn ihr aus dieser Unterwelt fliehen wollt, habt ihr euch die falsche Seite ausgesucht.“
 
-Zauberer: „Raus hier ginge es nur vom anderen Ende meiner Zelle.“
+Ugoki: "Die falsche Seite?“
 
-Zauberer: „Aber am Ausgang dieser Höhle lauert ein mächtiger Geist, den ich alleine nicht besiegen kann. Außerdem bin ich hier seit Jahren eingeschlossen. Wenn ihr mich befreit, können wir jenen Wächter womöglich gemeinsam ins Nirvana befördern!“
+Zauberer: "Raus hier ginge es nur vom anderen Ende meiner Zelle.“
 
-Tedder: „Nun gut, ich denke, unser unbekannter Freund hier kennt sich etwas besser aus als wir. Wir sollten ihn befreien und zusammen von hier verschwinden.“
+Zauberer: "Aber am Ausgang dieser Höhle lauert ein mächtiger Geist, den ich alleine nicht besiegen kann. Außerdem bin ich hier seit Jahren eingeschlossen. Wenn ihr mich befreit, können wir jenen Wächter womöglich gemeinsam ins Nirvana befördern!“
 
---- Tedder und Ugoki versuchen den Käfig aufzubrechen
+Tedder: "Nun gut, ich denke, unser unbekannter Freund hier kennt sich etwas besser aus als wir. Wir sollten ihn befreien und zusammen von hier verschwinden.“
 
-Dialog: „Nach einigen sehr, sehr langen Minuten schaffen es Tedder und Ugoki gemeinsam das Schloss zum Kerker des Zauberers, welches, im Vergleich zu anderen gesicherten Türen dieser Tunnel, stabiler und nicht ganz so rostig war, zu zerbrechen.“
+> Tedder und Ugoki versuchen den Käfig aufzubrechen
 
-Nekromant: „Ich danke euch. Auf Ewig werde ich in eurer Schuld stehen!“
+Dialog: "Nach einigen sehr, sehr langen Minuten schaffen es Tedder und Ugoki gemeinsam das Schloss zum Kerker des Zauberers zu zerbrechen, welches, im Vergleich zu anderen gesicherten Türen dieser Tunnel, stabiler und nicht ganz so rostig war.“
 
-Ugoki: „Revanchieren kannst du dich ein anderes mal, Menschlein. Wo sind wir hier? Wo befindet sich diese Höhle?“
+Nekromant: "Ich danke euch. Auf Ewig werde ich in eurer Schuld stehen!“
 
-Nekromant: „Oh, das ist mir selbst auch nicht ganz genau bekannt. Irgendwo im Westen der Tückischen Gipfel, so weit es mir zu Ohren kam.“
+Ugoki: "Revanchieren kannst du dich ein anderes mal, Menschlein. Wo sind wir hier? Wo befindet sich diese Höhle?“
 
-Tedder: „Nun gut. Dann lass uns mal raus hier.“ 
+Nekromant: "Oh, das ist mir selbst auch nicht ganz genau bekannt. Irgendwo im Westen der Tückischen Gipfel, wenn ich mich nicht irre.“
 
---- Ziel: Findet den Ausgang und besiegt den Wächtergeist
+Tedder: "Nun gut. Dann lass uns mal raus hier.“ 
 
---- Am Ende der Höhle kommt man auf den Wächtergeist und eine riesige Spinne…
+> Ziel: Findet den Ausgang und besiegt den Wächtergeist
 
---- Wenn man auf die Spinne stößt….
+> Am Ende der Höhle kommt man auf den Wächtergeist und eine riesige Spinne
 
-Einheit, die auf die Spinne stößt: „Was für ein Monster! Das ist ein anderes Kaliber als die halb ausgehungerten Ratten dieser Höhle.“
+> Wenn man die Spinne sichtet
 
---- Wenn man auf den Wächtergeist stößt…
+Einheit, die auf die Spinne stößt: "Was für ein Monster! Das ist ein anderes Kaliber als die halb ausgehungerten Ratten dieser Höhle.“
 
-Einheit, die auf den Wächtergeist stößt: „Das ist widerwärtig! Ein solch großer Geist...“
+> Wenn man den Wächtergeist sichtet
 
---- Wenn man auf Spinne und Wächtergeist gestoßen ist…
+Einheit, die auf den Wächtergeist stößt: "Das ist widerwärtig! Ein solch großer Geist...“
 
-Tedder: „Womöglich lässt sich das achtbeinige Monster mit dem durchsichtigen Geist ausspielen...“
+> Wenn man auf Spinne und Wächtergeist gestoßen ist
 
---- Wenn der Wächtergeist stirbt...
+Tedder: "Womöglich lässt sich das achtbeinige Monster mit dem Geist ausspielen...“
 
-Dialog: „In diesem Moment kommt im Süden an der Höhlenwand eine Kluft zum Vorschein, aus deren Richtung ein Lichtschein zu erblicken und ein warmer Luftzug zu spüren ist.“
+> Wenn der Wächtergeist stirbt
 
---- Die Höhle bekommt eine „Öffnung“
+Dialog: "In diesem Moment kommt im Süden an der Höhlenwand eine Kluft zum Vorschein, aus deren Richtung ein Lichtschein zu erblicken und ein warmer Luftzug zu spüren ist.“
 
-Zauberer: „Ich rieche Freiheit!“
+> Die Höhle bekommt eine „Öffnung“
 
-Ugoki: „Und ich einen Spinnenkadaver.“
+Zauberer: "Ich rieche Freiheit!“
 
---- Wenn man eine Einheit aus der Höhle heraus bewegt...
+Ugoki: "Und ich einen Spinnenkadaver.“
 
-Zauberer: „Kommt mit mir und ich lehre euch zum Dank, dass ihr mir aus dieser Höhle geholfen habt, alles, was ich über die Welt der Toten weiß. Wenn ihr längere Zeit mit mir verweilt, werde ich euch die Geheimnisse der Totenbeschwörung näher bringen.“
+> Wenn man eine Einheit aus der Höhle heraus bewegt
 
-Tedder: „Das hört sich vielversprechend an. Jedoch planten wir, unsere Heimat so schnell wie möglich wieder aufzusuchen und für einen Tod von König Disgustus zu sorgen.“
+Zauberer: "Kommt mit mir und ich lehre euch zum Dank, dass ihr mir aus dieser Höhle geholfen habt, alles, was ich über die Welt der Toten weiß. Wenn ihr längere Zeit mit mir verweilt, werde ich euch die Geheimnisse der Totenbeschwörung näher bringen.“
 
-Ugoki: „Dieser Emporkömmling. Ich werde alle unsere vernichteten Brüder jenen Tages, als Bostim unseren Stamm ausrottete, rächen!“
+Tedder: "Das hört sich vielversprechend an. Jedoch plante ich, unsere Heimat so schnell wie möglich wieder aufzusuchen und für einen Tod von König Disgustus zu sorgen.“
 
---- Entscheidung: Direkt zu den Tückischen Gipfeln zurück, für direkte Rache, oder mit dem Zauberer, um die Totenbeschwörung zu erlernen
+Ugoki: "Dieser Emporkömmling. Ich werde alle unsere vernichteten Brüder jenen Tages, als Bostim unseren Stamm ausrottete, rächen!“
+
+> Entscheidung: Direkt zu den Tückischen Gipfeln zurück, für direkte Rache, oder mit dem Zauberer, um die Totenbeschwörung zu erlernen
 
 Tedder:
-Option A: „Wir werden mit dir kommen, unser zaubernder, unbekannter Freund. Totenbeschwörung wird sich wahrscheinlich als sehr nützlich gegen diese lebenden Zweibeiner erweisen.“
-Option B: „Wir brechen umgehend nach Osten auf, um Disgustus IV. in Bostim den Garaus zu machen. Lebt wohl, geheimnisvoller Zauberfreund!“
+Option A: "Wir werden mit dir kommen, unser zaubernder, unbekannter Freund. Totenbeschwörung wird sich wohl als sehr nützlich gegen diese lebenden Zweibeiner erweisen.“
+Option B: "Wir brechen umgehend nach Osten auf, um Disgustus II in Bostim den Garaus zu machen. Lebt wohl, geheimnisvoller Zauberfreund!“
 
---- Wenn Tedder mit Nekromant mitgeht…
+> Wenn Tedder mit Nekromant mitgeht (Story A)
 
-Zauberer: „So sei es. Ihr werdet die Totenbeschwörung lieben lernen. Übrigens, mein Name ist Nekromant.“
+Zauberer: "So sei es. Ihr werdet die Totenbeschwörung lieben lernen. Übrigens, mein Name ist Nekromant.“
 
-=> Story A
+> Wenn Tedder direkt nach Osten geht (Story B)
 
---- Wenn Tedder direkt nach Osten geht…
-
-Zauberer: „Nun denn, meine Lieben. Ich hoffe, ihr werdet erfolgreich sein und über die Menschen siegen – Ich werde mich meinen eigenen Angelegenheiten widmen. Womöglich sieht man sich wieder!“
-
-=> Story B
+Zauberer: "Nun denn, meine Lieben. Ich hoffe, ihr werdet erfolgreich sein und über die Menschen siegen – Ich werde mich meinen eigenen Angelegenheiten widmen. Womöglich sieht man sich wieder!“
 
 
 
 
-Storyline A: Tedder begleitet den Nekromanten
+> Story A: Tedder begleitet den Nekromanten
 
+## Episode 3: Untotes Leben
 
+Während ich und Ugoki mit unserem Unbekannten aus der Höhle entkommen waren, mussten wir seltsame Verhaltensmuster unseres zaubernden Freundes feststellen. Er zeigte irgendein verrücktes Interesse zu dem toten Spinnenkörper, kurz bevor wir die Höhle verließen.
 
-Episode 3: Untotes Leben
+Der Nekromant: So ist sein Name. Und, wie der Zufall es so will, macht er diesem auch alle Ehre. Er will nicht verraten, wie alt er ist. Viel eher weiß er es aber ganz einfach nicht mehr, weil er zu lange in der Höhle in seiner Zelle verbracht hatte. Er wurde wohl vor einigen Jahren vom Elfenkönig Vasolin persönlich in diese Höhle eingesperrt, wo er von dem Wächtergeist auf Ewigkeiten gefangen gehalten werden sollte.
 
-Während ich und Ugoki mit unserem Unbekannten aus der Höhle entkommen waren, mussten wir seltsame Verhaltensmuster unseres zaubernden Freundes, der sich Nekromant nennt, feststellen. Er zeigte irgendein verrücktes Interesse zu dem toten Spinnenkörper, kurz bevor wir die Höhle verließen.
+Unser neuer Freund erzählt viele Dinge. Ein Hauptthema ist sein Buch - Ein Buch, das alles Wissen über die Totenbeschwörung enthält, was man sich sonst nur vorstellen kann. Er habe wohl einst den Großteil der Geheimnisse von den großen Lichfürsten der Grünen Inseln in diesem Buch zusammengefasst. Sobald wir es in unserem Besitz haben, könne es uns alles rund um die Geisterwelt verraten und er uns beibringen und trainieren, sodass wir in der Lage seien, unsere Rache an König Disgustus auszuüben.
 
-Der Nekromant: So ist sein Name. Und, wie der Zufall es so will, macht er diesem auch alle Ehre. Er will nicht verraten, wie alt er ist. Viel eher weiß er es aber ganz einfach nicht mehr, weil er zu lange in der Höhle in seiner Zelle verbracht hatte. Er wurde wohl vor einigen Jahren, mögen es nun Jahrzehnte oder gar Jahrhunderte sein, vom Elfenkönig Vasolin persönlich in diese Höhle eingesperrt, wo er von dem Wächtergeist auf Ewigkeiten gefangen gehalten werden sollte.
+Auf den Wunsch des Nekromanten begeben wir uns in Richtung südwesten, wo sich nahe dem Wachsamen Wald seine Gruft befindet, in der Hoffnung, sein Buch dort wieder zu finden.
 
-Unser neuer Freund erzählt viele Dinge. Ein Hauptthema ist sein Buch - Ein Buch, das alles Wissen über die Totenbeschwörung enthält, was man sich sonst nur vorstellen kann gibt. Er habe wohl einst den Großteil der Geheimnisse von den großen Lichfürsten der Grünen Inseln in diesem Buch zusammengefasst. Nekromant nennt das Buch „Tot sein oder Totmachen?“. Sobald wir es in unserem Besitz haben, könne er uns alles rund um die Geisterwelt verraten, beibringen und trainieren, so dass wir in der Lage seien, unsere Rache an General Disgustus auszuüben.
+Kurze Zeit nachdem wir aus der Höhle raus waren und uns auf freies Flachland begaben, kommen Schreie aus den Tiefen hinter uns. Die Stimme ist kaum wahrnehmbar, und doch verstehe ich sie einwandfrei. Es ist beängstigend. 
 
-Teilweise erinnere ich mich an den Geschmack der Ratten in den Höhlen. Sie hatten nach nichts geschmeckt, kurz nachdem wir auferstanden waren. Ich freue mich auf die nächsten Tiere denen wir begegnen. Vielleicht lag die Geschmackslosigkeit einfach an der Unterernährung der Tiere.
+> Tedder, Ugoki und Nekromant finden sich südlich des Höhlenausgangs, auf freiem Land
 
-Auf den Wunsch des Nekromanten begeben wir uns in Richtung Südwesten, wo sich nahe dem Wachsamen Wald seine Gruft befindet, in der Hoffnung, sein Buch dort wieder zu finden.
+Geisterstimme: "...“
 
-Kurze Zeit nachdem wir aus der Höhle raus waren und uns auf freies Flachland begaben, kommen Schreie aus den Tiefen hinter uns. Die Stimme ist kaum wahrnehmbar, und doch verstehe ich sie einwandfrei. Es ist beängstigend… 
+Tedder: "Was war das? Habt ihr das auch gehört?“
 
---- Tedder, Ugoki und Nekromant finden sich Südlich des Höhlenausgangs, auf freiem Land.
+Nekromant: "Eieiei.“
 
-Geisterstimme: „...“
+Ugoki: "Ich bin mir nicht sicher. Hätte ein friedlich sausender Sturm sein können. Lass uns von dieser Höhle verschwinden und weit hinter uns lassen. Ich möchte nichts mit dieser Geisterwelt zu tun haben - Untotsein reicht mir voll und ganz.“
 
-Tedder: „Was war das? Habt ihr das auch gehört?“
+Nekromant: "Hahaha, wie ihr wünscht, meine Lieben. Ihr solltet jedoch wissen, dass diese Geister mich auf Schritt und Tritt verfolgen und versuchen werden, mich erneut in eines ihrer Gefängnisse in jenen Tiefen der Höhle zu befördern. Ein Fluch, den mir die Schamanen der Elfen auferlegten.“
 
-Geisterstimme: „Du meinst mich getötet zu haben, Nekromant! Sämtliche Geister dieser Lande werden dich heimsuchen und für dein Ableben garantieren!“
+> Ziel: Geleite Nekromant zu seiner Festung, südwestlich des Höhlenausgangs
 
-Nekromant: „Eieieiei.“
+> Es kommen regelmäßig Geister aus dem Höhlenausgang die den Spieler verfolgen
 
-Ugoki: „Oh ja, ich denke das haben wir, ganz klar und deutlich. Lass uns von dieser Höhle verschwinden und weit hinter uns lassen. Ich möchte nichts mit dieser Geisterwelt zu tun haben - Untotsein reicht mir voll und ganz.“
+> Wenn man den ersten Geist sichtet
 
-Nekromant: „Hahaha, wie ihr wünscht, meine Lieben. Ihr solltet jedoch wissen, dass diese Geister mich auf Schritt und Tritt verfolgen und versuchen werden, mich erneut in eines ihrer Gefängnisse in jenen Tiefen der Höhle zu befördern.“
+Einheit, die den Geist sichtet: "Da ist estwas hinter uns. Beeilt euch!“
 
---- Ziel: Geleite Nekromant zu seiner Festung, südwestlich des Höhlenausgangs
+> Nach einiger Zeit trifft man auf Elfen, die sich in der Festung aufhalten 
 
---- Es kommen regelmäßig Geister aus dem Höhlenausgang, die den Spieler verfolgen
+Elf: "Der nekrophile Nekromant ist wieder da! Alarmiert die anderen!“
 
---- Wenn man den ersten Geist sichtet
+Nekromant: "Elfen. Hatten wir uns nicht geeinigt, dass wir uns aus dem Weg gehen? Was macht ihr in meiner Sumpffestung?“
 
-Einheit, die den Geist sichtet: „Die verfolgen uns ja wirklich!“
+Elf: "Deine Zeit hier ist vorüber, Nekromant. Verschwinde, oder wir töten dich.“
 
---- Nach einiger Zeit trifft man auf Elfen, die in der Festung sind
+Nekromant: "Nein. Ich bin nicht derjenige, der verschwindet. Das seid ihr. Ich gehe nicht zurück in die Gefangenschaft! Die Toten werden sich erneut erheben!“
 
-Elf: „Der nekrophile Nekromant ist wieder da! Alarmiert die anderen!“
+> Wenn man den ersten Elfen tötet
 
-Nekromant: „Elfen. Hatten wir uns nicht geeinigt, dass wir uns aus dem Weg gehen? Was macht ihr in meiner Sumpffestung?“
-
-Elf: „Deine Zeit hier ist vorüber, Nekromant. Verschwinde, oder wir töten dich.“
-
-Nekromant: „Nein. Ich bin nicht derjenige, der verschwindet. Das seid ihr. Ich gehe nicht zurück in die Gefangenschaft!“
-
---- Wenn man den ersten Elfen tötet…
-
-Tedder: „Oh. Wir haben einen umgebracht!“
+Tedder: "Ich kann spüren, wie seine Seele unsere Welt verlässt.“
 
 Nekromant: „Sehr gut, meine Freunde. Heute wollen wir Elfenblut fließen sehen!“
 
